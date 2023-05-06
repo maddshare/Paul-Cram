@@ -1,4 +1,4 @@
-# Paul-Cram
+# Paul Cram
 
 Paul Cram [1952-2018] was a prolific Canadian jazz musician and composer. He was a founding member and artistic director of the Upstream Music Association and formed many jazz ensembles and orchestra groups throughout his career. He composed for such entities, as well as for radio (primarily CBC), film, and theatre.
 
